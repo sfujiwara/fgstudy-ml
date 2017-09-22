@@ -1,0 +1,1 @@
+https://fgstudy.connpass.com/event/66483/
